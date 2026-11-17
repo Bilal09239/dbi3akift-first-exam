@@ -1,0 +1,2 @@
+- Es können in 10 jahren sehr viele user dazu kommen demntspreched werden die indexes und so mehr und die daten werden mehr so wie tabellen und dadurch wird eben die größer und größer 
+es können sehr sehr viele emails ein und ausgehen da sie eben sehr viele üser sein  
